@@ -1,0 +1,1 @@
+# equipments-installed-onsite-
